@@ -4,4 +4,4 @@
 - 📫 How to reach me: [My Blog](https://kaxiya1021.github.io/)
 - 💞️ favorite anime: 文豪ストレイドッグス
 - ⚡ Fun fact: I am a novelist!
-- 📚 Recent readings: "Existential Psychotherapy" by Irvin D. Yalom, "Tiny Habits" by B.J. Fogg, and more!
+- 📚 Recent readings: [Existential Psychotherapy](https://book.douban.com/subject/26304954/), [Tiny Habits](https://book.douban.com/subject/35594496/), and more!
